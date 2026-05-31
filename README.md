@@ -1,4 +1,4 @@
-##👋 Hello! I'm Nikki Yadav
+👋 Hello! I'm Nikki Yadav
 
 📊 Business Analyst focused on transforming data into actionable business insights.
 
