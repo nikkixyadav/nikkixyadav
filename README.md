@@ -50,7 +50,7 @@ Looking for opportunities in Business Analytics where I can apply analytical thi
 
 🔗 LinkedIn: https://www.linkedin.com/in/nikki-yadav-b2368b34a/
 
-📧 Email: ynikkiyadav0229@gmail.com
+📧 Email: nikkiyadav0229@gmail.com
 
 ━━━━━━━━━━━━━━━━━━━━
 
